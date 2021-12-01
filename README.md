@@ -1,2 +1,2 @@
 # bricehelyon.github.io
-devoirs les femme et l'informatique
+devoirs les femmes et l'informatique
